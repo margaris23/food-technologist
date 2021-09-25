@@ -34,7 +34,7 @@ https://gr.jooble.org/desc/934976839537780398?ckey=τεχνολογια+τροφ
 
 https://www.skywalker.gr/elGR/aggelia/ergasias/Τεχνολόγος-Τροφίμων---Ποιοτικός-Έλεγχος2/D47AF62F-8308-235A-F449-8C1458A96581?utm_campaign=google_jobs_apply&utm_source=google_jobs_apply&utm_medium=organic
 
-### Τεχνολόγο Τροφίμων (ΜΕΒΓΑΛ)
+### Τεχνολόγος Τροφίμων (ΜΕΒΓΑΛ)
 
 https://gr.jooble.org/desc/7185303905236839097?ckey=τεχνολογια+τροφιμων&rgn=-1&pos=15&elckey=-139757259713403414&p=1&sid=-7106311374323032445&age=515&relb=100&brelb=100&bscr=39.75103&scr=39.75103&iid=-7995870806015698683
 
