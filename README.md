@@ -75,3 +75,5 @@ https://www.youtube.com/watch?v=oJ1LcVhL8FE
 
 - [LINK 1](https://gr.indeed.com/jobs?q=%CF%84%CF%81%CE%BF%CF%86%CE%AF%CE%BC%CF%89%CE%BD%20%CF%84%CE%B5%CF%87%CE%BD%CE%BF%CE%BB%CE%BF%CE%B3%CE%BF%CF%82&l=%CE%91%CE%B8%CE%AE%CE%BD%CE%B1%2C%20%CE%91%CF%84%CF%84%CE%B9%CE%BA%CE%AE&vjk=e222c579d4e25eb6)
 - [LINK 2](https://www.google.com/search?channel=crow5&client=firefox-b-d&q=%CE%B5%CF%85%CF%81%CE%B5%CF%83%CE%B7+%CE%B5%CF%81%CE%B3%CE%B1%CF%83%CE%B9%CE%B1%CF%83+%CF%84%CE%B5%CF%87%CE%BD%CE%BF%CE%BB%CE%BF%CE%B3%CE%BF%CF%83+%CF%84%CF%81%CE%BF%CF%86%CE%B9%CE%BC%CF%89%CE%BD&ibp=htl;jobs&sa=X&ved=2ahUKEwiv7u_Y2JnzAhXIxqQKHTWJAe4QudcGKAJ6BAgVEDI&sxsrf=AOaemvKbymt2aHimtRilnu5tEjdMrRGI6A:1632558057792#htivrt=jobs&htidocid=TABXMPAg6wTwkO1XAAAAAA%3D%3D&fpstate=tldetail)
+- [LINK 3](https://icould.com/stories/peter-s-2/?length=short)
+
