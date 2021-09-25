@@ -46,6 +46,18 @@ https://www.jobfind.gr/JobAd/View/GR/Theseis_Ergasias/01dd7de6-7371-42b1-8504-23
 
 https://www.kariera.gr/jobs/jdf3jf6rmq92291tr1c?job_did=JDF3JF6RMQ92291TR1C&siteid=#siteid#GR
 
+### Τεχνολόγος Τροφίμων (PASSARELLA Ζαχαροπλαστεία - Περιστερι)
+
+https://www.xe.gr/jobs/results/720734897?master_type=140079
+
+### Τεχνολόγος Τροφίμων (Ανωνυμη Αγιος Στέφανος)
+
+https://www.xe.gr/jobs/results/744278756?master_type=140079
+
+### Quality Assurance Supervisor (ALTERRA Α.Ε Γιαννιτσά)
+
+https://www.jobfind.gr/JobAd/View/GR/Theseis_Ergasias/B4D07C9A-B61B-4FE2-B896-177795286C11?utm_source=Indeed&utm_medium=organic&utm_campaign=Indeed
+
 ## Σημαντικα links
 
 - [LINK 1](https://gr.indeed.com/jobs?q=%CF%84%CF%81%CE%BF%CF%86%CE%AF%CE%BC%CF%89%CE%BD%20%CF%84%CE%B5%CF%87%CE%BD%CE%BF%CE%BB%CE%BF%CE%B3%CE%BF%CF%82&l=%CE%91%CE%B8%CE%AE%CE%BD%CE%B1%2C%20%CE%91%CF%84%CF%84%CE%B9%CE%BA%CE%AE&vjk=e222c579d4e25eb6)
