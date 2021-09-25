@@ -70,6 +70,10 @@ https://www.youtube.com/watch?v=jufStF3KbOY
 
 https://www.youtube.com/watch?v=oJ1LcVhL8FE
 
+### Food Scientists and Technologists Career Video
+
+https://www.youtube.com/watch?v=cWbaZEIe7GQ
+
 
 ## Σημαντικα links
 
