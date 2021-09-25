@@ -58,6 +58,19 @@ https://www.xe.gr/jobs/results/744278756?master_type=140079
 
 https://www.jobfind.gr/JobAd/View/GR/Theseis_Ergasias/B4D07C9A-B61B-4FE2-B896-177795286C11?utm_source=Indeed&utm_medium=organic&utm_campaign=Indeed
 
+
+## Videos
+
+### A day in the life of a Food Technologist
+
+https://www.youtube.com/watch?v=jufStF3KbOY
+
+
+### Career Advice on becoming a Food Technologist by Peter S (Full Version)
+
+https://www.youtube.com/watch?v=oJ1LcVhL8FE
+
+
 ## Σημαντικα links
 
 - [LINK 1](https://gr.indeed.com/jobs?q=%CF%84%CF%81%CE%BF%CF%86%CE%AF%CE%BC%CF%89%CE%BD%20%CF%84%CE%B5%CF%87%CE%BD%CE%BF%CE%BB%CE%BF%CE%B3%CE%BF%CF%82&l=%CE%91%CE%B8%CE%AE%CE%BD%CE%B1%2C%20%CE%91%CF%84%CF%84%CE%B9%CE%BA%CE%AE&vjk=e222c579d4e25eb6)
